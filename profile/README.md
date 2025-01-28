@@ -139,4 +139,4 @@ Developed as a browser-based game, Slope combines fast-paced action with challen
 
 Slope is a game that embodies the essence of arcade gaming: simple, challenging, and incredibly fun. Its minimalist design, combined with dynamic gameplay and escalating difficulty, creates an experience that appeals to casual and hardcore gamers alike. Whether you’re looking to kill time or test your reflexes, Slope delivers an exhilarating adventure that’s hard to put down.
 
-So, what are you waiting for? Dive into the thrilling world of Slope and see how far you can go!
+So, what are you waiting for? Dive into the thrilling world of Slope and see how far you can go! Slope unblocked
