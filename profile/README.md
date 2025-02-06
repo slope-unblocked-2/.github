@@ -145,3 +145,5 @@ Slope: The Ultimate 3D Running Game
 Slope is a fast-paced 3D endless runner game that challenges players with its thrilling and unpredictable gameplay. In this game, you control a rolling ball on a neon-lit, sloped track filled with obstacles, sharp turns, and steep drops. The objective is to keep the ball moving while avoiding falling off the track.
 
 The game features intuitive controls, requiring only left and right arrow keys to steer. As you progress, the speed increases, making it more difficult to react. Precision and quick reflexes are key to achieving high scores. Play Slope online and test your agility today!
+
+slope unblocked 76 !
